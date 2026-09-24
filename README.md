@@ -1,0 +1,1 @@
+# Sumatrapdf-Full-Version-Unlocked
